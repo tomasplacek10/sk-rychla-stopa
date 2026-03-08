@@ -1,0 +1,1 @@
+# sk-rychla-stopa
